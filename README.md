@@ -1,4 +1,4 @@
-# Hi, I'm Sukhjeevan Kaur 👋
+# Hi, I'm Sukhjeevan Kaur !!👋
 
 🎓 Computer Science & Engineering graduate with a strong interest in Mathematics, Data Science, Machine Learning, and Research.
 
